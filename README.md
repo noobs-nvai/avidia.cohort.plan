@@ -1,4 +1,6 @@
-# **Campaign Timeline: September 15th - September 28th, 2023**
+# Avidia Cohort Campaign Plan
+
+**Campaign Timeline: September 15th - September 28th, 2023**
 
 **Instagram:**
 
